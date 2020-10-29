@@ -10,32 +10,31 @@ and times of year
 * Hayden, CO ([ Cross Mountain Ranch ](http://crossmountainranch.com/elk_hunting_northwest_colorado.htm))
 * 10/30/2020 - 11/05/2020 Forecast:
 	* ~40 - 60 degrees during the day
+	* Leave morning of 10/30 - returning on the 11/03
 
-### Thing to buy 
+### Things to buy 
 * Groceries
   * Hand sanitizer
   * Protein bar's (personal)
-  * heavy duty garbage bags (to carry animal)
   * 1 full day ( breakfast, lunch and dinner for 4 people)
     * Breakfast:
     	* Bacon/Turkey Bacon (~8 slices)
     	* Eggs (14 - 16)
-    	* Bagels (7 - 8)
+    	* Bagels (5 - 6)
     	* Avocado (3)
     	* Coffee
     * Lunch (will be packed)
-    	* 1-2 apples/bananas (quiet?)
+    	* 1 apple/person
     	* protein source 
     	  * Jerky
     	  * Salami
-    	* fruit/nut mix
-    	* Bar (Protein/Pro Meal (High Cal)/Candy)
+    	* Bar (Protein/Pro Meal (High Cal))
+    	* Ruby date bar
     	* Gatorade powder
     * Dinner (ideally something that can be cooked over the fire...)
     	* Beef Stew (pre-made)
     	* Bread
-* Gear
-  * Boot Gaiters (especially if boots are less than 9" tall)
+    	* Brownies
 
 ### General Equipment 
 * tent
@@ -43,24 +42,17 @@ and times of year
 * sleeping bag
 * pillow
 * headlamp/flashlight
-* Hikers backpack
+* Hikers backpack (daypack with ability to carry animal)
 * Camera (gopro)
-* Garbage bags (to carry animal)
-* construction bags (to carry animal)
-* car camping with day hiking (plan on cold camping)
+* Garbage/Construction/Contractor bags (to carry animal)
 
 
 ### Food/Food Equipment
 * Coffee maker (french press)
 
-* Food for 4 people
 
-Leave morning of 10/30 - returning on the 11/06
-* 6 dinners
-* 6 breakfasts'
-* at least 12 "snack" meals (will be carrying with you during the day)
-	* ERG (Electrolyte Replacement) type snacks
-
+* 5 days worth of additional snacks
+  * ERG (Electrolyte Replacement) type snacks
 * Cambelback
 * **Lots** of water
 * Many water bottles
@@ -76,12 +68,13 @@ Leave morning of 10/30 - returning on the 11/06
 * flourescent orange vest
 * flourescent orange hat
 * Gloves
+* Boot Gaiters (especially if boots are less than 9" tall)
 
 #### If it is snowing...
 * Down jacket
 * Warm layers (fleece/wool) - (3 - 4)
 * waterproof pants
-* Long underwear (2)
+* Long underwear (2 - 3)
 * Wool socks
 * Waterproof hiking boots
 
