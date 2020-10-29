@@ -14,7 +14,7 @@ and times of year
 ### Thing to buy 
 * Groceries
 	* tin foil
-	* heavy duty garbage bags (to ca)
+	* heavy duty garbage bags (to carry animal)
 	* 1 full day ( breakfast, lunch and dinner for 4 people)
 	  * Breakfast:
 	  	* Bacon/Turkey Bacon (~8 slices)
@@ -37,6 +37,7 @@ and times of year
 	  	* Potatoes
 	  	* Naan
 * Gear
+  * pants (1 -2)
   * Neck gator
   * Boot Gaiters (especially if boots are less than 9" tall)
 
