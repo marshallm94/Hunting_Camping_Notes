@@ -13,32 +13,28 @@ and times of year
 
 ### Thing to buy 
 * Groceries
-	* tin foil
-	* heavy duty garbage bags (to carry animal)
-	* 1 full day ( breakfast, lunch and dinner for 4 people)
-	  * Breakfast:
-	  	* Bacon/Turkey Bacon (~8 slices)
-	  	* Eggs (14 - 16)
-	  	* Bagels (7 - 8)
-	  	* Avocado (3)
-	  	* Coffee
-	  * Lunch (will be packed)
-	  	* 1-2 apples/bananas (quiet?)
-	  	* protein source 
-	  	  * Jerky
-	  	  * Salami
-	  	* fruit/nut mix
-	  	* Bar (Protein/Pro Meal (High Cal)/Candy)
-	  	* Gatorade powder
-	  * Dinner (ideally something that can be cooked over the fire...)
-	  	* Kabobs?
-	  	* Meat & veggies
-	  	* Brats?
-	  	* Potatoes
-	  	* Naan
+  * Hand sanitizer
+  * Protein bar's (personal)
+  * heavy duty garbage bags (to carry animal)
+  * 1 full day ( breakfast, lunch and dinner for 4 people)
+    * Breakfast:
+    	* Bacon/Turkey Bacon (~8 slices)
+    	* Eggs (14 - 16)
+    	* Bagels (7 - 8)
+    	* Avocado (3)
+    	* Coffee
+    * Lunch (will be packed)
+    	* 1-2 apples/bananas (quiet?)
+    	* protein source 
+    	  * Jerky
+    	  * Salami
+    	* fruit/nut mix
+    	* Bar (Protein/Pro Meal (High Cal)/Candy)
+    	* Gatorade powder
+    * Dinner (ideally something that can be cooked over the fire...)
+    	* Beef Stew (pre-made)
+    	* Bread
 * Gear
-  * pants (1 -2)
-  * Neck gator
   * Boot Gaiters (especially if boots are less than 9" tall)
 
 ### General Equipment 
@@ -80,12 +76,11 @@ Leave morning of 10/30 - returning on the 11/06
 * flourescent orange vest
 * flourescent orange hat
 * Gloves
-* 
 
 #### If it is snowing...
 * Down jacket
-* Warm layers (fleece/wool) - 3 - 4
-* Snowpants
+* Warm layers (fleece/wool) - (3 - 4)
+* waterproof pants
 * Long underwear (2)
 * Wool socks
 * Waterproof hiking boots
@@ -102,19 +97,18 @@ Leave morning of 10/30 - returning on the 11/06
 * sunscreen
 * sunglasses
 * Regular hiking boots
-* Hike-worthy socks ()
-* Hiking Pants
+* Hike-worthy socks (5)
+* Hiking Pants (1 - 2)
 
 
 #### When at camp...
 
 * Mask/Bandana (COVID-19)
 * book
-* pillow
+* pillow (2)
 * Camp shoes
-* pants
-* shirt
+* pants (1 - 2)
+* Shirts (2 - 3)
 * Deodorant
 * toothbrush
 * toothpaste
-* 
